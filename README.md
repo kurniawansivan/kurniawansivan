@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kurniawansivan
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning new programming language 
+- 💞️ I’m looking to collaborate on online studying
+- 📫 How to reach me IG: @ivan.kurniawans
